@@ -1,1 +1,2 @@
-[# putin satan government's pussyware (https://t.me/putinussy)](https://t.me/putinussy)
+[  putin satan government (https://t.me/putinussy)  ](https://t.me/putinussy)
+[  NEW PUTINUSSY ORDER (https://putinussy.github.io)  ](https://putinussy.github.io)
